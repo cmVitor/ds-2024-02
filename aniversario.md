@@ -9,3 +9,5 @@
 ### Família e amigos
 ### Piscina 
 ### Música boa
+
+![](https://adoisereticencias.wordpress.com/wp-content/uploads/2015/04/churrasco.jpg)
